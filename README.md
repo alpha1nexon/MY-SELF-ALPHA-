@@ -2,7 +2,7 @@
 <p align="center">
 
 
-   HI GUYS !!!        
+   HI GUYS !!!         [BUSINESS EMAIL](akinodevils14@gmail.com) 
 
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=alpha1nexon&label=Profile%20views&color=0e75b6&style=flat" alt="alpha1nexon" /> </p>
