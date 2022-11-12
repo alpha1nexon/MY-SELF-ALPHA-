@@ -19,7 +19,7 @@
 
 - 💬 Ask me about **MY HOBBY**
 
-- 📫 How to reach me **itzsoumya22@gmail.com**
+- 📫 How to reach me **akinodevils14@gmail.com **
 <p align="center">
 
 
